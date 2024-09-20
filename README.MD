@@ -6,8 +6,8 @@
   
 - Hi. I'm generally quiet on Pony Town. If none of my friends are online, I'm likely AFK.
 
-- I'm not comfortable with C+H unless you're a really close friend.
-  
+-I'm always comfortable with C + H from anyone. Don't be scared to come by.
+
 - I like to roleplay on Islands.
 
 - Currently recovering, so please be patient with me. I get stressed out by situations easily and tend to randomly leave because of it.
