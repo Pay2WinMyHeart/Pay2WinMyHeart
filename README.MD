@@ -9,6 +9,8 @@
 
 - Hazbin Hotel / Helluva Boss, My Hero Academia, Regrevator, or Dream SMP fans please don't interact with me. 
 
+- Tea Knight Cookie cosplayers please don't interact with me.
+
 - I'm always comfortable with C + H from anyone if I'm alone. But I'm likely afk. 
 
 - I like to roleplay on Islands.
