@@ -2,7 +2,7 @@
 
 - [![image](https://github.com/user-attachments/assets/10243290-0c1d-4b39-8602-a16138958cfc)
 
-([@Paggylyn](https://github.com/Paggylyn)
+- [@Paggylyn](https://github.com/Paggylyn) my beloved /platonic.
 
   
 - Hi. I'm generally quiet on Pony Town. If none of my friends are online, I'm likely AFK.
