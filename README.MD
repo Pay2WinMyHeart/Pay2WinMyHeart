@@ -2,10 +2,12 @@
 
 - [![image](https://github.com/user-attachments/assets/10243290-0c1d-4b39-8602-a16138958cfc)
 
-- [@Paggylyn](https://github.com/Paggylyn) my beloved /platonic.
+- [@Paggylyn](https://github.com/Paggylyn) my beloved. 
 
-  
+
 - Hi. I'm generally quiet on Pony Town. If none of my friends are online, I'm likely AFK.
+
+- Hazbin Hotel / Helluva Boss, My Hero Academia, Regrevator, or Dream SMP fans please don't interact with me. 
 
 - I'm always comfortable with C + H from anyone if I'm alone. But I'm likely afk. 
 
@@ -16,6 +18,8 @@
 - I like Cookie Run a lot.
 
 - If you think you've seen me before, you have. I had to delete so many internet accounts after a few incidents in the past. 
+
+
 
   
 <!---
